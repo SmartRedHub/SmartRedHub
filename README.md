@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SmartRedHub
+- 👀 I’m interested in Coding and Designing
+- 🌱 I’m currently learning to get more talented in Web Coding
+- 💞️ I’m looking to collaborate on uploading videos
+- 📫 How to reach me? Simple! Contact me at Smartredcontact@gmail.com
